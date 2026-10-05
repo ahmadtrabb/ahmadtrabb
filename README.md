@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Ahmad Traboulsi
+# 👋 Hi, I'm Ahmad Altraboulsi
 
 ### 💻 MIS Student | Junior Web Developer
 
